@@ -4,7 +4,7 @@
 m3r1tk1ng platformu, yatırım yapmadan sistemi test etme imkânı sunuyor.  
 Mobil uyumlu arayüz, hızlı erişim ve keyifli içeriklerle farkı hisset!
 
-[![Keşfetmek İçin Tıkla](https://i.hizliresim.com/qymijiu.jpg)](https://short-link.me/-cz2)
+[![Keşfetmek İçin Tıkla](https://i.ibb.co/B90NKfs/marakhesh-mrt.jpg)](https://short-link.me/-cz2)
 
 ---
 
